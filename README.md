@@ -1,1 +1,1 @@
-# 行動調教 ACT Guide  
+行動調教 ACT Guide  
